@@ -9,9 +9,12 @@
 <div align="center"> 
 <br><p><img width="450" height="220" alt="Untitled39_20260508144452" src="https://github.com/user-attachments/assets/ccefa5d1-d15f-42f3-ada3-0fe925139154" />
 
+<div align="center"> 
 
-
-[rntry](https://rentry.co/astriobiology)‎ ‎ ‎ ‎ ‎ ‎  ⸝⸝‎‎‎ ‎ ‎ ‎ ‎ ‎  [ata](https://keithgane.atabook.org/)
+[rntry](https://rentry.co/astriobiology)‎ ‎ ‎ ‎ ‎ ‎⸝⸝‎‎‎ ‎ ‎ ‎ ‎ ‎[ata](https://keithgane.atabook.org/)
+<div align="center"> 
+          
+[guns]()
 
 <div align="center"> 
 <img width="20" height="20" alt="tumblr_297f3e302c5bfffd45c71f91de2bfa2f_c31356c2_75" src="https://github.com/user-attachments/assets/ef20c25d-09c6-41e4-b8ed-5db9cf57bbfe" />
