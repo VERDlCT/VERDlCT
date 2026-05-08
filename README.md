@@ -6,7 +6,8 @@
 
 <h5 align="center"> 
   
-![tumblr_2e5f27e7ef66e5460382b5c575976a34_8553f8fc_250](https://github.com/user-attachments/assets/45685171-8ab6-47be-a7c1-7e5775518a9f)
+<img width="396" height="224" alt="stamp_1778217650_765bec386a7d4806a5989f0d90ced2a7" src="https://github.com/user-attachments/assets/82bcd168-d53b-4b69-9c3d-5caf01d4b99c" />
+
 
 [rentry](https://rentry.co/astriobiology)‎ ‎ ‎ ‎ ‎ ‎  ⸝⸝‎ ‎‎ ‎ ‎  ‎  [atabook](https://keithgane.atabook.org/)
 
