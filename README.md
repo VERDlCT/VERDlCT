@@ -10,4 +10,4 @@
 
 [rentry](https://rentry.co/astriobiology)‎ ‎ ‎ ‎ ‎ ‎  ⸝⸝‎ ‎‎ ‎ ‎  ‎  [atabook](https://keithgane.atabook.org/)
 
-<sub> formerly , blackholepilled
+<sub> Alter ego ; @CRUClBLE
