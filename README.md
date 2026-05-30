@@ -11,7 +11,7 @@
 
 <div align="center"> 
 
-[rntry](https://rentry.co/astriobiology)‎ ‎ ‎ ‎ ‎ ‎⸝⸝‎‎‎ ‎ ‎ ‎ ‎ ‎[ata](https://keithgane.atabook.org/)
+[rntry](https://rentry.co/thebannedlands)‎ ‎ ‎ ‎ ‎ ‎⸝⸝‎‎‎ ‎ ‎ ‎ ‎ ‎[ata](https://keithgane.atabook.org/)
 <div align="center"> 
           
 [guns](https://guns.lol/leithpierre)
