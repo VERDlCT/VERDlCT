@@ -1,6 +1,6 @@
 <h5 align="center"> 
 
-work in progress, check out links for the wait
+work in progress, check out links while I update my readme
 
 <h5 align="center"> 
 
