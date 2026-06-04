@@ -1,5 +1,3 @@
-<img width="1732" height="144" alt="tumblr_94f1ae310b176b2a603806dd5e4c2eac_97005069_2048" src="https://github.com/user-attachments/assets/1b211592-2dfb-4e65-8188-82c17279b061" />
-
 
 
 <h5 align="center"> 
@@ -9,13 +7,12 @@
 
 
 
-
-
-
+𝓛ancelot‎ ‎ ‎ ‎⋮‎ ‎ ‎ 𝓜afioso
 
 ![](https://komarev.com/ghpvc/?username=VERDlCT&color=fab63a&style=flat-square&label=STARS+.ᐟ&abbreviated=true)
 
+𝓱e‎ ‎ .‎ ‎ 𝓱im
+
+O1‎ ‎ ‎ ‎ ‎ O2‎ ‎ ‎ ‎ ‎ O3
 
 
-
-<img width="1732" height="144" alt="tumblr_94f1ae310b176b2a603806dd5e4c2eac_97005069_2048" src="https://github.com/user-attachments/assets/afe052dc-2aef-424a-bf5d-72ba0c550af1" />
