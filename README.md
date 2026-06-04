@@ -15,7 +15,7 @@
 <p> DO NOT COPY, COLORPICK, AND USE MY SKINS AS AN INSPO. It will have consequences </p>
 <p> I have my friend requests and party invites turned off, ask for permission first, and I will gladly accept </p>
 <p> I mostly stay at the bakery (or near), poppy playtime area, phighting area, or wherever my friends & moots are </p>
-<p> If you do plan to w2i please do be aware that I will most likely not reply, not because I'm ignoring you, it is because I'm busy with work or school. I do recommend sending a message on my atabook instead </p>
+<p> If you do plan to w2i please do be aware that I will most likely not reply, not because I'm ignoring you, it is because I'm busy with work or school. I do recommend sending a message on my atabook instead.. I am mostly in the menu whenever I am afk </p>
 <p> if you wanna learn more about me check out my rentry for info ^_^ </p>
 
 </details>
