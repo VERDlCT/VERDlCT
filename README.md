@@ -9,7 +9,7 @@
 <p>${\textsf{\color{#fab63a}𝓛ancelot}}$‎ ‎ ‎ ‎⋮‎ ‎ ‎ ${\textsf{\color{#fab63a}𝓜afioso}}$ </p>
  
 <details> <summary>ᵖʳᵉˢˢ ⁴ ⁱⁿᶠᵒ</summary>
-<br><p> hvy cudcomf, c*h is always encouraged and welcome even though I'm already sitting with friends </p>
+<br><p> hvy cudcomf, c*h is always encouraged and welcome even though I'm already sitting with friends.. I love cuddling so plspls ^_^;; </p>
 <p> I BLOCK FREELY. </p>
 <p> COVER TRIGGER, do not cover me unless I cover myself on purpose </p>
 <p> DO NOT COPY, COLORPICK, AND USE MY SKINS AS AN INSPO. It will have consequences </p>
@@ -17,7 +17,7 @@
 <p> I mostly stay at the bakery (or near), poppy playtime area, phighting area, or wherever my friends & moots are </p>
 <p> If you do plan to w2i please do be aware that I will most likely not reply, not because I'm ignoring you, it is because I'm busy with work or school. I do recommend sending a message on my atabook instead.. I am mostly in the menu whenever I am afk </p>
  <p> Lastly, I get VEERY awkward when it comes to strangers randomly coming up to me for a chat, I'm so sorry in advance if I do sound so dry or awkward.. <p>
-<p> if you wanna learn more about me check out my rentry for info ^_^ </p>
+<p> if you wanna learn more about me check out my rentry for more infos ^_^ </p>
 
 </details>
 
