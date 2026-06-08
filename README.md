@@ -3,10 +3,10 @@
 <div align="center"> 
 
 
-<img width="98" height="53" alt="tumblr_f63773eb29b2f7115f4078728765a7ff_77321c5c_100" src="https://github.com/user-attachments/assets/75e4a7dc-d93f-4958-aadb-6730b76cd8df" />
+<img width="99" height="56" alt="Tumblr_l_37678357475990" src="https://github.com/user-attachments/assets/39331340-a3ca-45f3-8a7f-5041af998c9f" />
 
 
-<p>${\textsf{\color{#fab63a}𝓛ancelot}}$‎ ‎ ‎ ‎⋮‎ ‎ ‎ ${\textsf{\color{#fab63a}𝓜afioso}}$ </p>
+<p>${\textsf{\color{#FF0000}𝓛ancelot}}$‎ ‎ ‎ ‎⋮‎ ‎ ‎ ${\textsf{\color{#FF0000}𝓜afioso}}$ </p>
  
 <details> <summary>ᵖʳᵉˢˢ ⁴ ⁱⁿᶠᵒ</summary>
 <br><p> TAKE NOTE, I am most likely afk from 5am-7pm due to school & work (GMT+8), I will not respond during those times. <p>
@@ -22,9 +22,9 @@
 
 </details>
 
-![](https://komarev.com/ghpvc/?username=VERDlCT&color=fab63a&style=flat-square&label=STARS+.ᐟ&abbreviated=true)
+![](https://komarev.com/ghpvc/?username=VERDlCT&color=FF0000&style=flat-square&label=BONES+.ᐟ&abbreviated=true)
 
-<p>${\textsf{\color{#fab63a}𝓱e}}$‎ ‎.‎ ${\textsf{\color{#fab63a}𝓱im}}$ </p>
+<p>${\textsf{\color{#FF0000}𝓱e}}$‎ ‎.‎ ${\textsf{\color{#FF0000}𝓱im}}$ </p>
 
 [rntry‎](https://rentry.co/thebannedlands) ‎ ‎ .‎ ‎ ‎ [atabook](https://keithgane.atabook.org/)
 
