@@ -9,7 +9,7 @@
 <p>${\textsf{\color{#fab63a}𝓛ancelot}}$‎ ‎ ‎ ‎⋮‎ ‎ ‎ ${\textsf{\color{#fab63a}𝓜afioso}}$ </p>
  
 <details> <summary>ᵖʳᵉˢˢ ⁴ ⁱⁿᶠᵒ</summary>
-<br><p> TAKE NOTE, I am most likeley afk from 5am-7pm due to school & work (GMT+8), I will not respond during those times. <p>
+<br><p> TAKE NOTE, I am most likely afk from 5am-7pm due to school & work (GMT+8), I will not respond during those times. <p>
  <p> hvy cudcomf, c*h is always encouraged and welcome even though I'm already sitting with friends.. I love cuddling so plspls ^_^;; </p>
 <p> I BLOCK FREELY. </p>
 <p> COVER TRIGGER, do not cover me unless I cover myself on purpose </p>
