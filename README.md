@@ -23,7 +23,7 @@
 
 </details>
 
-![](https://komarev.com/ghpvc/?username=VERDlCT&color=FF0000&style=flat-square&label=BONES+.ᐟ&abbreviated=true)
+![](https://komarev.com/ghpvc/?username=VERDlCT&color=FF0000&style=flat-square&label=BONES+.ᐟ)
 
 
 [rntry‎](https://rentry.co/thebannedlands) ‎ ‎ .‎ ‎ ‎ [atabook](https://keithgane.atabook.org/) ‎ ‎ .‎ ‎ ‎ [links](https://guns.lol/foundguilty)
