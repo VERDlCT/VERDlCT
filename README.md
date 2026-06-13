@@ -9,7 +9,7 @@
 <p>${\textsf{\color{#FF0000}𝓛ancelot}}$‎ ‎ ‎ ‎⋮‎ ‎ ‎ ${\textsf{\color{#FF0000}𝓜afioso}}$ </p>
  
 <details> <summary>ᵖʳᵉˢˢ ⁴ ⁱⁿᶠᵒ</summary>
-<br><p> TAKE NOTE, I am most likely afk from 5am-7pm due to school & work (GMT+8), I will not respond during those times. 💤 in my name means I am sleeping. <p>
+<br><p> TAKE NOTE, I am most likely afk from 5am-7pm due to school & work (GMT+8), I will not respond during those times. 💤 in my name means I am sleeping while 📚  means I am studying, working, or at school. <p>
  <p> hvy cudcomf, c*h is always encouraged and welcome even though I'm already sitting with friends.. I love cuddling so plspls ^_^;; </p>
 <p> I BLOCK FREELY. </p>
 <p> COVER TRIGGER, do not cover me unless I cover myself on purpose </p>
