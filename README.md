@@ -25,8 +25,8 @@
 
 ![](https://komarev.com/ghpvc/?username=VERDlCT&color=FF0000&style=flat-square&label=BONES+.ᐟ&abbreviated=true)
 
-<p>${\textsf{\color{#FF0000}𝓱e}}$‎ ‎.‎ ${\textsf{\color{#FF0000}𝓱im}}$ </p>
 
 [rntry‎](https://rentry.co/thebannedlands) ‎ ‎ .‎ ‎ ‎ [atabook](https://keithgane.atabook.org/) ‎ ‎ .‎ ‎ ‎ [links](https://guns.lol/foundguilty)
 
+ᵗʷ ᶠᵒʳ ᵇˡᵒᵒᵈ ᵃⁿᵈ ˢᵘᶜʰ
 
