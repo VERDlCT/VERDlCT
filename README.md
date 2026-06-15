@@ -20,7 +20,7 @@
  <p> My github account is only used for my pony town & coding purposes! I only fb super cool ppl / mooties, sorry! </p>
  <p> Lastly, I get VEERY awkward when it comes to strangers randomly coming up to me for a chat, I'm so sorry in advance if I do sound so dry or awkward.. <p>
 <p> if you wanna learn more about me check out my rentry for more infos ^_^ </p>
- <p> To the person who made me the pony town's the convict / simon, thank you sososo much !! </p>
+ <p> To the person who requested @/title-town to make me the pony town's the convict / simon, thank you sososo much !! </p>
 
 </details>
 
