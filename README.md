@@ -18,9 +18,9 @@
 <p> I mostly stay at the bakery (or near), poppy playtime area, phighting area, or wherever my friends & moots are </p>
 <p> If you do plan to w2i please do be aware that I will most likely not reply, not because I'm ignoring you, it is because I'm busy with work or school. I do recommend sending a message on my atabook instead.. I am mostly in the menu whenever I am afk </p>
  <p> My github account is only used for my pony town & coding purposes! I only fb super cool ppl / mooties, sorry! </p>
- <p> To whoever requested me as pony town's the convict / simon, thank you sososo much !! </p>
  <p> Lastly, I get VEERY awkward when it comes to strangers randomly coming up to me for a chat, I'm so sorry in advance if I do sound so dry or awkward.. <p>
 <p> if you wanna learn more about me check out my rentry for more infos ^_^ </p>
+ <p> To whoever requested me as pony town's the convict / simon, thank you sososo much !! </p>
 
 </details>
 
