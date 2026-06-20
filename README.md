@@ -15,7 +15,7 @@
 <p> COVER TRIGGER, do not cover me unless you are one of my friends or I cover myself on purpose </p>
 <p> DO NOT COPY, COLORPICK, AND USE MY SKINS AS AN INSPO. It will have consequences </p>
 <p> I have my friend requests and party invites turned off, ask for permission first, and I will gladly accept </p>
-<p> I mostly stay at the bakery (or near), poppy playtime area, phighting area, or wherever my friends & moots are </p>
+<p> I mostly stay near the bakery, poppy playtime area, phighting area, or wherever my friends & moots are </p>
 <p> If you do plan to w2i please do be aware that I will most likely not reply, not because I'm ignoring you, it is because I'm busy with work or school. I do recommend sending a message on my atabook instead.. I am mostly in the menu whenever I am afk </p>
  <p> My github account is only used for my pony town & coding purposes! I only fb super cool ppl / mooties, sorry! </p>
  <p> Lastly, I get VEERY awkward when it comes to strangers randomly coming up to me for a chat, I'm so sorry in advance if I do sound so dry or awkward.. <p>
