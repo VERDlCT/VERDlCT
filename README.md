@@ -27,7 +27,7 @@
 ![](https://komarev.com/ghpvc/?username=VERDlCT&color=FF0000&style=flat-square&label=BONES+.ᐟ)
 
 
-[rntry‎](https://rentry.co/thebannedlands) ‎ ‎ .‎ ‎ ‎ [atabook](https://keithgane.atabook.org/) ‎ ‎ .‎ ‎ ‎ [links](https://guns.lol/foundguilty)
+[rntry‎](https://rentry.co/thebannedlands) ‎ ‎ .‎ ‎ ‎ [atabook](https://keithgane.atabook.org/) ‎ ‎ .‎ ‎ ‎ [guns](https://guns.lol/foundguilty)
 
 ᵗʷ ᶠᵒʳ ᵇˡᵒᵒᵈ ᵃⁿᵈ ˢᵘᶜʰ
 
