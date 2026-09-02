@@ -3,11 +3,10 @@
 <div align="center"> 
 
 
-<img width="102" height="59" alt="tumblr_a4eaf35301867f84c44ec7aa9f8930ef_f24b08ba_250" src="https://github.com/user-attachments/assets/fe57106e-2d1d-4d13-85db-8723ddfa360b" />
+Revamping everything
 
 
-
-<p>${\textsf{\color{#FF0000}𝓛ancelot}}$‎ ‎ ‎ ‎⋮‎ ‎ ‎ ${\textsf{\color{#FF0000}𝓜afioso}}$ </p>
+<p>${\textsf{\color{#FFFFF}𝓛ancelot}}$‎ ‎ ‎ ‎⋮‎ ‎ ‎ ${\textsf{\color{#FFFFF}𝓜afioso}}$ </p>
  
 <details> <summary>ᵖʳᵉˢˢ ⁴ ⁱⁿᶠᵒ</summary>
 <br><p> TAKE NOTE, I am most likely afk from 5am-7pm due to school & work (GMT+8), I will not respond during those times. 💤 in my name means I am sleeping. <p>
