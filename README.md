@@ -13,7 +13,7 @@ Revamping everything
  <p> hvy cudcomf, c*h is always encouraged and welcome even though I'm already sitting with friends.. (unless my friends & moots has dni in their name!) I love cuddling so plspls ^_^;; </p>
 <p> I BLOCK FREELY. </p>
 <p> COVER TRIGGER, do not cover me unless you are one of my friends or I cover myself on purpose </p>
-<p> Please do not copy, colorpick, nor upload my skins on socials without permission. </p>
+<p> Please do not copy, colorpick, nor upload my skins on socials without permission. (THE SKINS YOU WILL SEE ON PINTEREST IS NOT POSTED BY ME. I appreciate it if you would report the user who uploaded it) </p>
 <p> I have my friend requests and party invites turned off, ask for permission first, and I will gladly accept. But if you are one of those people who asks for help in building but I am so sorry but I'm turning you down. </p>
 <p> I mostly stay near the bakery, poppy playtime area, phighting area, or wherever my friends & moots are </p>
  <p> My github account is only used for my pony town & coding purposes! I only fb super cool ppl / mooties, sorry! </p>
